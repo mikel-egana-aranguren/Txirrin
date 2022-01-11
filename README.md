@@ -1,0 +1,2 @@
+# Txirrin
+Txirrin bidaien liburua
